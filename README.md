@@ -65,6 +65,7 @@ PioneerTrust Bank was facing an increasing volume of flagged transactions result
 SQL & Data Analytics Enthusiast | Fraud Risk Analyst  
 📫 [osarohekhoragbon@gmail.com]  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/osaroh-ekhoragbon/)
+📌 [Linkedin Project Link](https://www.linkedin.com/posts/osaroh-ekhoragbon_90daysofconsistency-osarohdataanalyticsjourneywith10alytics-activity-7330250389864316928-hPjG?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAkcTOMBH04A-GBT9XWCy_GRBdwnuvWM7qY)
 
 ---
 
